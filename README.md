@@ -1,1 +1,2 @@
-# my-recpie-2
+# my-recpie
+take a pan pour some water then add maggi keep the gas in medium flame and then add some turmaric powder and some red chille powder then mix it then cover it from upside for two minutes and then eat 
